@@ -1,0 +1,2 @@
+- 👋 Selam, Ben Çağrı.
+- Bu kadar, başka bir detay yok.
